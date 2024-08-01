@@ -1,4 +1,15 @@
 - 👋 Hi, I’m @abdohomz
+
+- here to leave an impact.
+
+
+
+
+
+
+
+
+
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
